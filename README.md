@@ -1,4 +1,4 @@
-## 👋 what's up? i'm Raster!
-a 15yo argentine boy who is interested on rvc, gpt-sovits and other ai related things. i also make java edition resource packs for fun.
+## 👋 What's up? I'm Sr.MollyX
+I'm supposed to post something here but what does it matter
 
-it's a pleasure to meet ya.
+Nice to meet you I guess
