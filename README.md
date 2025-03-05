@@ -1,4 +1,2 @@
-## 👋 What's up? I'm Sr.MollyX
-I'm supposed to post something here but what does it matter
-
-Nice to meet you I guess
+## 👋 What's up? I'm crossiant
+i'm just a 15yo argentine genderfluid person (he/she), it's nice to meet you i guess?
