@@ -1,2 +1,2 @@
-## 👋 hey, i'm physx.
-i'm just a 15yo argentine tgirl who likes doing random stuff....
+## 👋 hey, i'm crossy.
+i'm just a 15yo argentine tgirl who likes doing random stuff
